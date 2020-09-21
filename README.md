@@ -27,6 +27,6 @@ The sparrow was alone and cold in the void
 Blind in the gloom and doom of happiness destroyed
 
 Suddenly a lone figure stood on the pavement, looking shrewd
-Below a
+Below a lampost it stood shivering, too cold to find food
 
-aww the sparrow is so cute 
+
